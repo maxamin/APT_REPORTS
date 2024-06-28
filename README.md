@@ -112,11 +112,11 @@ For further information or collaboration opportunities, please contact 4stalkers
 
 # Donation:
 
-# [Binance_ID:271854090]
+[Binance_ID:271854090]
 
-# Buy Me a Coffee: [Buy Me a Coffee](https://buymeacoffee.com/maxamin)
+Buy Me a Coffee: [Buy Me a Coffee](https://buymeacoffee.com/maxamin)
 
-# Ba9chich : [ba9chich.com/UL-Tunisia](https://ba9chich.com/UL-Tunisia)
+Ba9chich : [ba9chich.com/UL-Tunisia](https://ba9chich.com/UL-Tunisia)
 
 # [Pray for peace to 🇵🇸]
 
